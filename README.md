@@ -6,6 +6,7 @@ Web Developer
 
 * 🌍  I'm based in Bangkok,Thailand
 * ✉️  You can contact me at [yuno18840@gmail.com](mailto:yuno18840@gmail.com)
+* I am looking for an internship or a full-time job.
 
 ### Skills
 
